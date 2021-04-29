@@ -1,5 +1,9 @@
 ### Hi there 👋
 
+### I work as a computer engineer at NASA, scanning the internet for flat earth photos and photoshopping them to look round. 
+### Proud to be part of the team working 24/7 😄
+
+
 <!--
 **nevsky118/nevsky118** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
