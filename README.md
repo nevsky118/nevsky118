@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hello there 👋
 
 ### I work as a computer engineer at NASA, scanning the internet for flat earth photos and photoshopping them to look round. 
 ### Proud to be part of the team working 24/7 😄
